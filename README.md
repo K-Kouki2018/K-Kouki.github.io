@@ -1,1 +1,1 @@
-https://K-Kouki2018/K-Kouki.github.io
+https://K-Kouki2018.github.io/K-Kouki.github.io
